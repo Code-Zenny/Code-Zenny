@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Code-Zenny
+- 👀 I’m interested in the Mets LETS GO METS BABY
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on nothing, I can't help you lol
+- 📫 How to reach me... dont
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Lego appreciates faster than gold
